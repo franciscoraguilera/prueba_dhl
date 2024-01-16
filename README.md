@@ -1,2 +1,2 @@
-Realizado por Francisco Rolando Aguilera Portillo
+Realizado por Francisco R. Aguilera
 Asunción, Paraguay
